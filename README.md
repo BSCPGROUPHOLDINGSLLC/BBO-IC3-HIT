@@ -51,5 +51,7 @@ under  [USC 18, §225]+[USC 18, §21]+[USC 18, §1962]+[USC 18, §1963]+[USC 18,
 ![0xCUJX0mzfjdyZ1k](https://user-images.githubusercontent.com/70865813/184585422-8467996c-241d-4168-993a-fc3261cc0b91.png)
 
 5. FILE
-![image](https://user-images.githubusercontent.com/70865813/184588484-d51fbe57-9374-4e71-825d-2a83ffc2d0c8.png)
+![image](https://user-images.githubusercontent.com/70865813/184588753-d7e0820f-5bba-4679-8b67-91b03fc33baa.png)
+
+
 
