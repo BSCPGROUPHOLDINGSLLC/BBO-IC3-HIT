@@ -1,6 +1,8 @@
-@BBO-IC3-HIT
-Jacob A. Riis Neighborhood Settlement
-10-25 41st Ave, Queens, NY 11101
+@BBO-IC3-HIT <br>
+Jacob A. Riis Neighborhood Settlement <br>
+10-25 41st Ave, Queens, NY 11101 <br>
+
+## FOR USE BY FEDERAL, STATE, AND LOCAL AUTHORITIES
 
 ✨ peer-to-peer network
 -----------     slaskowitz@ingramllp.com <slaskowitz@ingramllp.com>,
