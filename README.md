@@ -34,13 +34,17 @@ https://github.com/BSCPGROUPHOLDINGSLLC/REPO1/find/main
 
 https://github.com/BSCPGROUPHOLDINGSLLC/REPO2/find/main
 
-+the desperation of [USC 18, §3]
-under  [USC 18, §225]+[USC 18, §21]+[USC 18, §1962]+[USC 18, §1963]+[USC 18, §241]+[USC 18, §4] - will lie
-150 East 42nd Street 19th Floor, New York, NY 10017 Filed: 07/21/2020
++the desperation of AVOIDANCE TO PROSECUTION UNDER [USC 18, §3]
 
-### 2 DOWN, FIVE UP AT THE STONEHEARST.
+under  [USC 18, §225]+[USC 18, §21]+[USC 18, §1962]+[USC 18, §1963]+[USC 18, §241]+[USC 18, §4] 
+- will lie OBO the counselors at [LOCATION 2]
+150 East 42nd Street 19th Floor, New York, NY 10017 
+- will lie OBO of their Clients at [LOCATION 3]
+101 West 55th Street, New York, NY 10019
 
-###### [40.741895,-73.989308](https://github.com/BSCPGROUPHOLDINGSLLC/REPO1/blob/10b69e2a8d6a269bad9c75d12a5416af918af4e1/MUGSHOTS%20OF%20what%20remains%20at%20STONEHEARST.pdf)
+### LOCATION 1.
+
+###### [40.741895,-73.989308](https://github.com/BSCPGROUPHOLDINGSLLC/REPO1/raw/bdc3986eccdc81766e55e2ee1d440c8b7140c8c9/MUGSHOTS%20OF%20STONEHEARST%20ASYLUM.pdf)
 
 1. FILE
 ![X3vtqWpsNAeReKMo](https://user-images.githubusercontent.com/70865813/184585326-8c2dd390-e774-483a-afb8-0cd92ee16898.png)
