@@ -17,3 +17,7 @@ Jacob A. Riis Neighborhood Settlement
 -----------    Stephen O'Connell <sgo2107@columbia.edu>
 ✨ peer-to-peer network
 
+### ACCESSORIES
+[40.741895,-73.989308](https://github.com/BSCPGROUPHOLDINGSLLC/REPO1/blob/10b69e2a8d6a269bad9c75d12a5416af918af4e1/MUGSHOTS%20OF%20what%20remains%20at%20STONEHEARST.pdf)
+
+### COUNSELORS FOR THE ZUCKER ORGANIZATION
